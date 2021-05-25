@@ -1,2 +1,2 @@
-# asmamiza.new
+# asmamiza.github.io
  
